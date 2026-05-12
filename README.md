@@ -10,5 +10,6 @@ May i ask what/who **kindney/Kindney** is?
 - 📫 How to reach me: via pony town, or discord: "cjkpudim" ⋆˚꩜｡
 - 😄 Pronouns: he/they/them (anything except for female pronouns.
 - ⚡ Fun fact: i hate reading books but i like making them :p
-────୨ৎ────────୨ৎ────
+────୨ৎ────
+
 respect my pronouns otherwise i'll block instantly. 
