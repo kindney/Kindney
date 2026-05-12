@@ -1,16 +1,15 @@
-## Hi there 👋
+ ݁˖ Hello!
 
 <!--
-**kindney/Kindney** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+May i ask what **kindney/Kindney** is?
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+- 🔭 I’m currently working on writing and bookmaking
+- 🌱 I’m currently learning baking and floriculture.
+- 👯 I’m looking to collaborate on comissions and drawing classes.
+- 🤔 I’m looking for help with learning to draw.
+- 💬 Ask me about anything you'd like .✦ ݁˖
+- 📫 How to reach me: via pony town, or discord: "cjkpudim" ⋆˚꩜｡
+- 😄 Pronouns: he/they/them (anything except for female pronouns.
+- ⚡ Fun fact: i hate reading books but i like making them :p
+────୨ৎ────────୨ৎ────
+respect my pronouns otherwise i'll block instantly. 
