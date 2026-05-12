@@ -1,7 +1,6 @@
  ݁˖ Hello!
 
-<!--
-May i ask what **kindney/Kindney** is?
+May i ask what/who **kindney/Kindney** is?
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 - 🔭 I’m currently working on writing and bookmaking
 - 🌱 I’m currently learning baking and floriculture.
