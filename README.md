@@ -1,8 +1,11 @@
  ݁˖ Hello!
 
 May i ask what/who **kindney/Kindney** is?
+
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
  🔭
+
 - 💤 Currently working on writing and bookmaking
 
 - ⋆. 𐙚 ˚ I’m currently learning baking and floriculture.
